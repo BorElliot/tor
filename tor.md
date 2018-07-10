@@ -18,6 +18,12 @@ http://www.vice.cn/read/what-is-going-on-in-deep-web
 
 http://www.91ri.org/category/pentest/pentest-skills
 
+http://www.91ri.org/14777.html
+
+导航: https://thehiddenwiki.org/
 
 
+http://wiki5kauuihowqi5.onion/
 
+
+https://github.com/mr-likar/DeepWeb/blob/master/DeepWeb.txt
